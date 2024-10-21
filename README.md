@@ -2,7 +2,7 @@
 - 👀 I’m interested in web3.0 NFT and Amazon
 - 🌱 I’m currently learning web3.0 and content creation
 - 💞️ I’m looking to collaborate on freelancing platforms
-- 📫 How to reach me 03006665166
+- 📫 How to reach me 03257458475    
 
 <!---
 AHMAD-987/AHMAD-987 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
